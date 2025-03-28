@@ -1,2 +1,2 @@
 # 3D-Opening-Logo-by-Blender
-<!-- Failed to upload "3D logo 動画編集 blender.mp4" -->
+https://drive.google.com/file/d/1scTV1P2WI1xYvfD2cLfivloYYAYs8u7n/view?usp=sharing
